@@ -1,0 +1,1 @@
+# Focicsapat_menedzser
